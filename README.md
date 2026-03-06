@@ -1,2 +1,2 @@
 # ChaiShop-Co-CRM
-https://drive.google.com/file/d/1_1jUf3dLObX62LAI6LbnuZObtjxcreSJ/view?usp=drive_link
+https://drive.google.com/drive/folders/19nj4EVnuGsFtejPTShq8WY7TK4jyrkKZ?usp=drive_link
